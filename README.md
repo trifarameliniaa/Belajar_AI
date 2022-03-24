@@ -1,2 +1,2 @@
 # Belajar_AI
-arise MSIB 
+arsip MSIB nya Tri Fara Melinia
